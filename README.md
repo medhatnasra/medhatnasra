@@ -19,13 +19,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: He/His/Him
 
 <br>
-<br>
-<br>
-<br>
-<br>
-
-
-
-
-
 
